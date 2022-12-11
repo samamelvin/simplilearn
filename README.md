@@ -1,2 +1,2 @@
 # simplilearn
-commitment and devoutness in hardwork.
+committed to work hard.God be my Helper
